@@ -2,7 +2,6 @@
 - 👀 I’m interested in doin your mom
 - 🌱 I’m currently learning your sister
 - 💞️ I’m looking to collaborate on your mom
-- 📫 How to reach me ... Ask your mom, she knows
 - ⚡ Fun fact: ...                                your mom
 
 <!---
